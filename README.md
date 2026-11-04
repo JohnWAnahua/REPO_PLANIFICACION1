@@ -1,1 +1,0 @@
-# REPO_Pr-ctica_Planificaci-n-de-procesos
